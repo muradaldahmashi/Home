@@ -4,7 +4,7 @@ https://drive.google.com/drive/folders/1SrWRTXlzBSgor7adahurGlnVMiJC7lPf?usp=sha
 mjUOrjaod+x*x#x&x#xxxxx
 
 
-غير الاكل بالرقم السبستل
+غير الاكس بالرقم السبستل
 
 
 vnfskj/*f
